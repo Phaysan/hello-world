@@ -1,2 +1,2 @@
 # hello-world
-ໄພສານ ສີຫາບຸດ, ຄຸ້ມຄອງຂໍ້ມູນຂ່າວສານ ຂອງ ທລຍ
+Mr. Phaysan SIHABOUTH, PRF Management Information System officer
